@@ -1,2 +1,7 @@
 # MTM6330-Week-2
+
 Yichi Zhang
+
+MTM6330
+
+040872242
